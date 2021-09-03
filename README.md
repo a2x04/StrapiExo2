@@ -1,0 +1,1 @@
+# StrapiExo2
